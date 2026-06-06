@@ -1,5 +1,5 @@
 # Viral Parah! Olympus Disebut Punya Pola Petir Paling Dicari
-![Uploading image.png…]()
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/18723457-ed1a-4f72-a3db-ccc8fb128b48" />
 ## Pendahuluan
 
 Olympus kembali menjadi perbincangan hangat di kalangan pecinta game online. Popularitas permainan bertema dewa Yunani ini terus meningkat karena fitur petir yang dianggap menjadi salah satu daya tarik utamanya. Tidak sedikit pemain yang membicarakan pengalaman mereka saat mendapatkan kombinasi pengganda besar yang membuat Olympus semakin sering dicari dan dimainkan.
