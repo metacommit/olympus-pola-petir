@@ -1,1 +1,1 @@
-# olympus-pola-petir
+Viral Parah! Olympus Disebut Punya Pola Petir Paling Dicari
