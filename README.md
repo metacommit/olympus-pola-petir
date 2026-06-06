@@ -1,5 +1,6 @@
 # Viral Parah! Olympus Disebut Punya Pola Petir Paling Dicari
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/18723457-ed1a-4f72-a3db-ccc8fb128b48" />
+<img width="1152" height="154" alt="image" src="https://github.com/user-attachments/assets/5b2b8591-0337-4000-87a7-3b70b063750c" href="https://e1sz.short.gy/juta288"/>
 
 ## Pendahuluan
 
